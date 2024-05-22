@@ -41,7 +41,7 @@ ge)
 
 ## Contact Us 📞
 
-We are always here to help! You can reach us via email at [your-email@example.com] or visit our [website](https://www.yourcompanywebsite.com).
+We are always here to help! You can reach us via email at [innovatexs7@gmail.com] or visit our [website](https://www.yourcompanywebsite.com).
 
 ---
 
